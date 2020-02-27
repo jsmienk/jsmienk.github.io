@@ -1,3 +1,0 @@
-# jsmienk.github.io
-
-Portfolio
